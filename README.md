@@ -1,2 +1,2 @@
 # G234SSB6
-G234SSB6
+Wallpapers
